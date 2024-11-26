@@ -1,6 +1,6 @@
 # Amazon Free $100 Gift Card Codes Generator
 
-![Amazon Gift Card]([https://www.shutterstock.com/image-vector/amazon-gift-card-flat-color-600nw-2308521197.jpg)
+![Amazon Gift Card](https://www.shutterstock.com/image-vector/amazon-gift-card-flat-color-600nw-2308521197.jpg)
 
 Unlock free **$100 Amazon gift card codes** with our easy-to-use generator! Designed for simplicity, this tool lets you get your favorite Amazon gift cards by completing simple tasks. Start shopping on Amazon with your free gift card today!
 
