@@ -20,15 +20,13 @@ Unlock free **$100 Amazon gift card codes** with our easy-to-use generator! Desi
 
 ## 📖 How It Works
 
-1. Visit our website at [https://cardcruise.pages.dev/free-amazon-gift-cards](https://cardcruise.pages.dev/free-amazon-gift-cards).
+1. Visit our website at [👉CLICK HERE👈](https://cardcruise.pages.dev/free-amazon-gift-cards).
 2. Select **Amazon Gift Card** from the available options.
 3. Complete a quick task to verify you’re human.
 4. Receive your $100 Amazon gift card code instantly.
 5. Redeem the code on Amazon and start shopping!
 
 ---
-
-## 📝 Articles on Amazon Gift Cards
 
 ### What Are Amazon Gift Cards?
 Amazon gift cards are prepaid digital or physical cards that allow users to shop for millions of items on Amazon. They are available in various denominations and are widely used as gifts for special occasions such as birthdays, anniversaries, and holidays.
