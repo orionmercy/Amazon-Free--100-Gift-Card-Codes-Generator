@@ -4,7 +4,7 @@
 
 Unlock free **$100 Amazon gift card codes** with our easy-to-use generator! Designed for simplicity, this tool lets you get your favorite Amazon gift cards by completing simple tasks. Start shopping on Amazon with your free gift card today!
 
-🔗 **Website:** [https://cardcruise.pages.dev/free-amazon-gift-cards](https://cardcruise.pages.dev/free-amazon-gift-cards)
+🔗 **Website:** [👉CLICK HERE👈](https://cardcruise.pages.dev/free-amazon-gift-cards)
 
 ---
 
