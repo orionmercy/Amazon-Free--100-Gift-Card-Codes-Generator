@@ -53,6 +53,6 @@ Using an Amazon gift card is simple. After redeeming your code, the balance is a
 
 ---
 
-### Keywords (SEO Boost)
+### Keywords
 
 `free $100 Amazon gift card generator`, `Amazon gift card codes`, `$100 Amazon code generator 2024`, `get free Amazon gift cards`, `Amazon gift card no survey`, `Amazon gift card hack`, `free $100 Amazon promo codes`, `working Amazon gift card generator`, `how to get free Amazon gift cards`, `generate $100 Amazon codes`, `CardCruise Amazon generator`, `Amazon gift card fast`
